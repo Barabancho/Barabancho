@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Barabancho
-- 👀 I’m interested in Bobi.
+- 👀 I’m interested in Coding
 - 🌱 I’m currently learning Programing .
 - 💞️ I’m looking to collaborate on with Bobi.
 - 📫 How to reach me with Bobi.
